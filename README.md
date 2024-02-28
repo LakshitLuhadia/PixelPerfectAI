@@ -1,3 +1,5 @@
+<img width="961" alt="image" src="https://github.com/LakshitLuhadia/PixelPerfectAI/assets/148317491/28758f83-024a-47c1-98fb-444e18c6dcf5">
+
 Inspiration
 
 "As we sifted through countless photos on our phones, fatigue setting in, inspiration sparked. Fueled by the desire for quick and effortless Instagram-worthy posts, our idea was born....PixelPerfect"
